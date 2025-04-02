@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @F40cmd (Louis)
 - 👀 I’m interested in cars, jets, computers and coding (but i am bad).
 - 🌱 I’m currently learning Python, HTML, CSS and JS.
-- 📫 Text me on DC (f40_f40). DMs are open.
+- 📫 Text me on DC (f40_f40) X, Ig or Telegram. DMs are open.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am a open person and I like to talk with people.
